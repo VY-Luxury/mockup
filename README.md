@@ -6,5 +6,10 @@ The glasses you wear convey an impression of who you are. If you work with us, y
 Our aim is to truly understand what makes **you** important and reflect that in or design.
 
 # Our process
-- 3 week design period including 3 consulting calls with a Vy designer and design discussions throughout
-- 
+- Week 1: Consulation call where we get to know you and your insipration for wanting bespoke glasses
+- Week 2: We send you 5 design concepts and ask for your feedback and the concepts you like most
+- Week 3: We send you a refined design and ask for your feedback once more
+- Week 4-6: Once we are decide on a design, we take 2 weeks to manufacture it
+- Week 7: Ready for delivery
+
+This pair of glasses was made for the mother of a founder of VY, Alec Turkmen. She is an othometrist with her own clinic and a distinct, sophisticated style. She wanted glasses to stand out in the minds of customers who visit her store.
