@@ -15,8 +15,8 @@ Our aim is to truly understand what makes **you** important and reflect that in 
 (Iso and Side Renders)
 Made for optometrist __ Turkmen. She wanted glasses to stand out in the minds of customers who visit her store. We needed to make something which complemented her distinct and sophisticated style. She was our first client as well as the mother of a founder of VY, Alec Turkmen.
 
-Side               Iso
+Side----------------Iso
 
-render             render
+render-------------render
 
-(vertical)    text    Name
+(vertical)----text----Name
