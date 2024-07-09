@@ -12,4 +12,5 @@ Our aim is to truly understand what makes **you** important and reflect that in 
 - Week 4-6: Once we are decide on a design, we take 2 weeks to manufacture it
 - Week 7: Ready for delivery
 
-This pair of glasses was made for the mother of a founder of VY, Alec Turkmen. She is an othometrist with her own clinic and a distinct, sophisticated style. She wanted glasses to stand out in the minds of customers who visit her store.
+(Iso and Side Renders)
+Made for optometrist __ Turkmen. She wanted glasses to stand out in the minds of customers who visit her store. We needed to make something which complemented her distinct and sophisticated style. She was our first client as well as the mother of a founder of VY, Alec Turkmen.
