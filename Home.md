@@ -5,6 +5,8 @@ The glasses you wear convey an impression of who you are. If you work with us, y
 
 Our aim is to truly understand what makes **you** important and reflect that in or design.
 
+Email vyluxurysales@gmail.com for our bespoke glasses or a free consult. Our bespoke package is preced at $600.
+
 # Our process
 - Week 1: Consulation call where we get to know you and your insipration for wanting bespoke glasses
 - Week 2: We send you 5 design concepts and ask for your feedback and the concepts you like most
